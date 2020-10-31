@@ -1,0 +1,8 @@
+Preheat oven to 350°F (177°C). Grease two 9-inch cake pans, line with parchment paper, then grease the parchment paper.
+Make the cake: Whisk the flour, baking soda, cocoa powder, and salt together in a large bowl. Set aside.
+Using a handheld or stand mixer, beat the butter and sugar together on medium-high speed until combined, about 1 minute.Add the oil, egg yolks, vanilla extract, and vinegar and beat on high for 2 minutes.
+With the mixer on low speed, add the dry ingredients in 2-3 additions alternating with the buttermilk. Beat in your desired amount of food coloring just until combined. Vigorously whisk or beat the 4 egg whites on high speed until fluffy peaks form as pictured above, about 3 minutes. Gently fold into cake batter. The batter will be silky and slightly thick.
+Divide batter between cake pans. Bake for 30-32 minutes or until the tops of the cakes spring back when gently touched and a toothpick inserted in the center comes out clean.  Remove cakes from the oven and cool completely in the pans set on a wire rack. The cakes must be completely cool before frosting and assembling.
+Assemble and frost: Using a large serrated knife, slice a thin layer off the tops of the cakes to create a flat surface. Discard or crumble over finished cake. Place 1 cake layer on your cake stand or serving plate. Evenly cover the top with frosting. Top with 2nd layer and spread remaining frosting all over the top and sides. 
+Refrigerate cake for at least 30-60 minutes before slicing. This helps the cake hold its shape when cutting.
+Thaw overnight in the refrigerator and bring to room temperature before decorating/serving.
